@@ -1,6 +1,8 @@
 🌐 ¡Hola mundo!
 
 👋 Me llamo Gilbert
-🗺️ y actualmente estoy en BSAS, Argentina.
 
-📆 En los próximos días, me gustaría hacer nada.
+🗺️ y actualmente estoy en Villa tesei, Hurlingham, BSAS.
+
+📆 En los próximos días, me gustaría irme de vacaciones.
+
